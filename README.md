@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Haseli23
-- 👀 I’m interested in learning ne skills
+- 👀 I’m interested in learning new skills
 
 
 <!---
